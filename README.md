@@ -8,4 +8,5 @@
   
 ##
 
-![CV](https://user-images.githubusercontent.com/82952491/179774503-6edba929-9770-4bd2-b9d3-fa557021d1e8.jpg)
+
+![CV](https://user-images.githubusercontent.com/82952491/179776741-9109296f-03fd-4d70-9be8-9fb2c072d330.jpg)
