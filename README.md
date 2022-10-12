@@ -7,6 +7,4 @@
 </div>
   
 ##
-
-
-![CV](https://user-images.githubusercontent.com/82952491/179776741-9109296f-03fd-4d70-9be8-9fb2c072d330.jpg)
+![AlisonSalazarGomezCV](https://user-images.githubusercontent.com/82952491/195390115-0ff4df46-8de8-4e3b-af10-992fd909a90a.png)
